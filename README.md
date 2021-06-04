@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🌱 I’m currently in the first year of my Masters degree in Green Networking and Cloud Computing
+- 📫 How to reach me: https://www.linkedin.com/in/mahnoormmalik/
